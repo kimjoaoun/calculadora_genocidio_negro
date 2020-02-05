@@ -1,0 +1,1 @@
+calculadora_genocidio_negro
